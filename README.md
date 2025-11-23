@@ -1,2 +1,1 @@
-Deepa Dumaru
-Sunil Deupala
+Hero
